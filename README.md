@@ -73,4 +73,4 @@ This devotional app was created using AI-supported tools including ChatGPT and L
 
 - Visit the app: [at-the-table-with-jesus-coffee-table-book.lovable.app](https://at-the-table-with-jesus-coffee-table-book.lovable.app)
 - Share with someone who needs encouragement
-- Subscribe to the creator’s newsletter: [Matters of the Heart on Substack](#)
+- Subscribe to the creator’s newsletter: [Matters of the Heart on Substack](https://sibabaloltakane.substack.com/)
